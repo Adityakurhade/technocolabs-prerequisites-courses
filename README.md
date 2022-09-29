@@ -1,1 +1,0 @@
-# technocolabs-prerequisites-courses
